@@ -4,7 +4,7 @@
 
 🎓 College: [Faculdade Metodista Granbery](http://granbery.edu.br/)
 
-👨‍🏫 Teacher: [Ricardo Silva Campos- Google Academico](https://scholar.google.com.br/citations?user=fl9FTo4AAAAJ&hl=pt-BR)
+👨‍🏫 Teacher: [Ricardo Silva Campos- Linkedin](https://www.linkedin.com/in/ricardo-campos-505220237/)
 
 
 
